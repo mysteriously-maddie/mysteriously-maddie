@@ -4,7 +4,8 @@ Hi, hello, hey! ![1000026892](https://github.com/user-attachments/assets/9995b73
 
 
 Welcome to my alt ! ![1000026893](https://github.com/user-attachments/assets/0633413e-83cf-4d1d-8757-3a1b7922cd39)
- My main account follows people I know personally or have close connections with!
+ My main account follows people I know personally or have close connections with, or just people I find cool! ![Uploading 1000026895.gif…]()
+
 I prolly won't unfollow you on this acc if you become close friends with me, so you can have an extra follower!
 Okay bye this is a wip . . . ![1000026894](https://github.com/user-attachments/assets/73e87f7d-a307-4bf0-9c5b-319cd17b178e)
 
