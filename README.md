@@ -11,3 +11,7 @@ Okay bye this is a wip . . . ![1000026894](https://github.com/user-attachments/a
 
 
 <img width="721" height="69" alt="1000026879" src="https://github.com/user-attachments/assets/6f4788d6-d783-4a74-a33f-6386f35288af" />
+
+
+https://github.com/user-attachments/assets/2a2c8cac-fcfe-40e6-9b49-e940e4c8ec2e
+
