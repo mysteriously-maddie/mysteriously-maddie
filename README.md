@@ -12,6 +12,6 @@ Okay bye this is a wip . . . !![1000028619](https://github.com/user-attachments/
 ![1000028614](https://github.com/user-attachments/assets/dfdf5055-c180-48d0-aabd-3bcf72597d6f)
 
 
-https://github.com/user-attachments/assets/81ab91aa-abd3-4c60-b20a-0a1f4d5867f5
 
+https://github.com/user-attachments/assets/af30753b-16bb-4145-b36f-3f0e19292570
 
