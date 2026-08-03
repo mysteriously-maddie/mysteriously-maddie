@@ -19,6 +19,5 @@ https://github.com/user-attachments/assets/af30753b-16bb-4145-b36f-3f0e19292570
 
 cool animation I made - !
 
-
-Uploading 1000029021.mp4…
+https://github.com/user-attachments/assets/c9cd8392-97af-41da-8b6a-812a99fab904
 
