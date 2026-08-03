@@ -1,4 +1,6 @@
 ![1000028610](https://github.com/user-attachments/assets/2d66fa31-d0cb-41a2-b6e4-b6fda7cd5dd0)
+![1000028614](https://github.com/user-attachments/assets/dfdf5055-c180-48d0-aabd-3bcf72597d6f)
+
 
 Hi, hello, hey! ![1000028618](https://github.com/user-attachments/assets/be91e041-2e8f-45dc-9053-9621feea21d1)
 
@@ -11,7 +13,12 @@ Okay bye this is a wip . . . !![1000028619](https://github.com/user-attachments/
 
 ![1000028614](https://github.com/user-attachments/assets/dfdf5055-c180-48d0-aabd-3bcf72597d6f)
 
-
-
 https://github.com/user-attachments/assets/af30753b-16bb-4145-b36f-3f0e19292570
+
+![1000028614](https://github.com/user-attachments/assets/dfdf5055-c180-48d0-aabd-3bcf72597d6f)
+
+cool animation I made - !
+
+
+Uploading 1000029021.mp4…
 
